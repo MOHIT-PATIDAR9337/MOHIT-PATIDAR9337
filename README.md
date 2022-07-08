@@ -15,7 +15,8 @@
 
 - 📫 How to reach me **patidarmohit9771@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XjU9X10RhR_lEbTeVlHBQwQHa-ut4qxJ/view?usp=sharing](https://drive.google.com/file/d/1XjU9X10RhR_lEbTeVlHBQwQHa-ut4qxJ/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1zMBshKT5ZYcAPqoOWSITpGtOnmfcymMC/view?usp=sharing
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
